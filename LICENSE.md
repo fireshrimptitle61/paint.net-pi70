@@ -1,4 +1,4 @@
-# 
+# exclusive Adobe Photoshop PC版 插件 是最佳 Adobe Photoshop PC版 插件，集成 排版工具 和 交互式PDF。安全、可靠、优化，性能最大化。
 
 
 
